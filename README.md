@@ -1,3 +1,3 @@
 # code one 
 testing 
-if you clicked on this you gay
+if you are reading this you gay
